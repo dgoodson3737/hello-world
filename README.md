@@ -1,3 +1,4 @@
 # hello-world
 Trying new things
-Did i do this thing right?
+I enjoy video games and traveling. k
+you could say i am a foodie
